@@ -8,5 +8,5 @@
 ## *Besides,you can also use I ceated cloud drive,It's free for everyone!*
 ### *Cloud:[LOGIN](https://cloud.suax.top)*
 ***
-### *A simple web game:[吃掉坤坤](https://ikun.syax.top)*
+### *A simple web game:[吃掉坤坤](https://ikun.suax.top)*
 
